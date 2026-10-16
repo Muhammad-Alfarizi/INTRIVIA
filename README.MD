@@ -10,6 +10,3 @@
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 [ kesan pesan untuk cluster 9 orang orangnya asik asik dan mudah diajak ngobrol dan solid semua sukses terus untuk cluster 9]
-
-## Harapan Kuliah 
-[Harapan saya selama kuliah di filkom adalah saya survive dalam menghadapi perkuliahan dan tidak mudah menyerah dengan halangan yang ada]
